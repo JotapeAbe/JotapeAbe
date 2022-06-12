@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @JotapeAbe
+- 👀 I’m interested in learn increasingly.
+- 🌱 I’m currently learning computer science in 1 semester.
+- 💞️ I’m looking to collaborate on always with what I can, I am willing to learn more and more and always learn.
